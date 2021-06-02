@@ -1,0 +1,3 @@
+# Praktikum-SCPK
+DUTA ALAMIN
+123190156
